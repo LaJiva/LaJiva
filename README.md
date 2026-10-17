@@ -1,5 +1,5 @@
 ### Hi there I´m Jiva👋 
-Soon to be Mechanical Engineer majoring in Biomedical Design at Pontificia Universidad Católica form Chile.
+Soon to be Mechanical Engineer majoring in Biomedical Design at Pontificia Universidad Católica from Chile.
 
 - 🌱 I’m currently learning ...
     - Mechanical Engineering ⚙️🛠️
